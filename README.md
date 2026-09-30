@@ -1,0 +1,2 @@
+# premium-anchor-escape-001-anchor-escapement-mechanism-ad
+Tired of losing track of your anchor escapement adjustments? Stop relying on memory or scattered notes—systematize your fine-tuning with a dedicated log designed for precision horology.  This Notion template provides a structured way to record every adjustment, including initial settings, changes, and results. It helps you identify patterns, reduce
